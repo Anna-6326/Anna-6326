@@ -2,7 +2,8 @@
 - 👀 I’m interested in Website development and designing, python, c#, cpp
 - 🌱 I’m currently learning Diploma in computer engineering 
 - 💞️ I’m looking to collaborate on none
-- 📫 How to reach me chetanbagul6326@gmail.com
+- 📫 How to reach me- Email- chetanbagul6326@gmail.com
+                       Instagram- @Chetan_bagul_6326
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Still learning java.
 
