@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Diploma in computer engineering 
 - 💞️ I’m looking to collaborate on none
 - 📫 How to reach me- Email- chetanbagul6326@gmail.com
-                       Instagram- @Chetan_bagul_6326
+                       Instagram- @[Chetan_bagul_6326](https://www.instagram.com/chetan_bagul_6326/)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Still learning java.
 
